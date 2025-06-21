@@ -2,4 +2,4 @@
 
 Не грусти, будь собой - Ты выглядишь как ангел
 
-![MFZjIdxA7EQQndeHzBGQF6FUbpFY_8kF-ckIlBhz4emOYMrqeNUuZhy4BGSgK22IHSSJ7LZhxZ1DH0kb4n1AE9pI](https://github.com/user-attachments/assets/ce6d50bc-e6d6-4322-8f4a-39a7724a4d91)
+![image_2025-06-21_14-25-14](https://github.com/user-attachments/assets/27fbaeb0-0497-4069-b304-a1babd0dbe98)
