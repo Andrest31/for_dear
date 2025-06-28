@@ -28,4 +28,4 @@
 
 "Я тебя люблю" не сравнится с "Я тобой горжусь"
 
-![image_2025-06-21_14-25-14](https://github.com/user-attachments/assets/27fbaeb0-0497-4069-b304-a1babd0dbe98)
+![image_2025-06-28_16-16-44](https://github.com/user-attachments/assets/190ddf7a-b151-4f06-9137-070e8df8eeda)
